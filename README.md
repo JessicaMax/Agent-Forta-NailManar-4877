@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is NailManar#4877
+
 # High Gas Agent
 
 ## Description
